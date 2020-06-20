@@ -5,3 +5,10 @@ He was portrayed as a cybercriminal and computer programmer by Keanu Reeves in T
 Andrew Bowen provided Neo's voice in The Matrix: Path of Neo. In 2008, Neo was selected by Empire as the 68th Greatest Movie Character of All Time.
 Neo is also an anagram of "one", a reference to his destiny of being The One who would bring peace. 
 There are claims that a nightclub in Chicago inspired the name of the character in the Matrix. Neo is considered to be a superhero.
+
+## Character traits
+
+* Programmer
+* Hacker
+* The One
+* trained in Martial Arts
