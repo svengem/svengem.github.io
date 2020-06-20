@@ -13,7 +13,7 @@ There are claims that a nightclub in Chicago inspired the name of the character 
 * The One
 * trained in Martial Arts
 
-
+![Neo Image](https://i.pinimg.com/236x/de/f7/b7/def7b78dd50b1ebb7db8cf129f6da825--matrix-wedding.jpg)
 
 
 
